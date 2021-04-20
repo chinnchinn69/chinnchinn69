@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @chinnchinn69
+- 👀 I’m interested in football and video games
+- 🌱 I’m currently learning french,pe,maths,construction,english,science
